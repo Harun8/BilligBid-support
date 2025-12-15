@@ -27,7 +27,7 @@
   Vi kan opdatere denne privatlivspolitik. Væsentlige ændringer vil blive kommunikeret via app-opdateringer.
 
   ### Kontakt
-  Spørgsmål om privatlivspolitikken? Kontakt os på: [din-email@example.com]
+  Spørgsmål om privatlivspolitikken? Kontakt os på: [harunabdi8@gmail.com]
 
   ---
 
